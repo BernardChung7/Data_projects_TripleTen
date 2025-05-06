@@ -1,1 +1,0 @@
-https://public.tableau.com/app/profile/bernard.chung3935/viz/BernardChung-FinalProject_17445122864540/Story1?publish=yes
